@@ -1,3 +1,3 @@
-- #👋 Hi, I’m @zakariaithssain,
+- 👋 Hi, I’m @zakariaithssain,
 - I’m a CS student, interested in AI and CyberSecurity.
 - zakaria04aithssain@gmail.com
